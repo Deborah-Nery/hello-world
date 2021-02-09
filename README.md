@@ -6,7 +6,7 @@
 
 •🌎Moro em Porto Alegre/ RS.
 
-•📊Sou bacharel em Administração.
+•📊Sou bacharel em Administração e em transição de carreira.
 
 •💻Estudante de Análise em Desenvolvimento de Sistemas.
 
