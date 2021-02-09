@@ -8,6 +8,6 @@
 
 •📊Sou bacharel em Administração e em transição de carreira.
 
-•💻Estudante de Análise em Desenvolvimento de Sistemas.
+•💻Estudante de Análise e Desenvolvimento de Sistemas.
 
 •💎Meu propósito é estudar, me aperfeiçoar, para fazer parte do seleto grupo de mulheres na área de TECNOLOGIA.
