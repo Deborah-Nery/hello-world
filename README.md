@@ -1,2 +1,13 @@
 # hello-world
-just another repository
+
+👸Hi, people. I´m Deborah👸 
+
+  Bem-vindo ao meu GitHub <3
+
+•🌎Moro em Porto Alegre/ RS.
+
+•📊Sou bacharel em Administração.
+
+•💻Estudante de Análise em Desenvolvimento de Sistemas.
+
+•💎Meu propósito é estudar, me aperfeiçoar, para fazer parte do seleto grupo de mulheres na área de TECNOLOGIA.
